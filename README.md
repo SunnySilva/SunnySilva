@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SunnySilva
+- 👀 I’m interested in alot of gaming and things like that!
+- 🌱 I’m currently learning how to speak spanish 
+- 📫 How to reach me sunnysilva433@gmail.com
